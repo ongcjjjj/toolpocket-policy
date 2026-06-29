@@ -52,7 +52,7 @@
 
 如对本隐私政策有任何疑问，请通过以下方式联系：
 
-- 邮箱：2441527908@qq.com
+- 邮箱：3036026926@qq.com
 
 ---
 
@@ -103,4 +103,4 @@ If this privacy policy changes, we will update the "Last Updated" date at the to
 
 If you have any questions about this privacy policy, please contact:
 
-- Email: 2441527908@qq.com
+- Email: 3036026926@qq.com
